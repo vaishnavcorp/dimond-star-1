@@ -1,0 +1,1 @@
+# dimond-star-1
